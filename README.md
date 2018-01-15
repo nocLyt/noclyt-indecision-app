@@ -15,6 +15,6 @@
 
 ![大屏幕展示](http://noclyt.qiniudn.com/2018_01_15_18_10_08.png)
 
-![手机屏幕展示](http://noclyt.qiniudn.com/2018_01_15_18_11_41.png)
+![手机屏幕展示](http://noclyt.qiniudn.com/2018_01_15_18_13_31.png)
 
 
